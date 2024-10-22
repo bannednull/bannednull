@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @bannednull
+👋 Hi, I’m @bannednull
